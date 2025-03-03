@@ -43,7 +43,7 @@ Here’s what some users have to say about Testosil:
 For best results, take **two capsules daily** with a meal. Consistent use over 8–12 weeks yields optimal benefits.
 
 ## Where to Buy Testosil?
-Testosil is available on the and trusted online retailers like Amazon.
+Testosil is available on the [official website](https://www.testosil.com/ct/959301)
 
 ## Final Verdict
 Testosil appears to be a solid testosterone booster, backed by natural ingredients and positive user feedback. If you’re looking for a supplement to enhance your energy, strength, and overall well-being, it may be worth trying.
